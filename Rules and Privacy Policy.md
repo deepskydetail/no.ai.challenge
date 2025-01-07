@@ -13,7 +13,7 @@ The Contest begins on 1/7/25 and ends on 2/7/25. Entries submitted before or aft
 ## 4. HOW TO ENTER
 To enter the Contest:
 
-Edit the fits files without using neural networks/AI and submit to DeepSkyDetail.Contests@gmail.com
+Edit the fits files without using neural networks/AI (as discussed on the related YouTube video) and submit to DeepSkyDetail.challenges@gmail.com or on Deep Sky Detail's Discord Server
 
 ## 5. PRIZES
 A Deep Sky Detail Bahtinov Mask up to 8" in diameter. The prize is worth approximately 10 USD.
