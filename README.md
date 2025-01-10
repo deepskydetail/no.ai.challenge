@@ -1,7 +1,7 @@
 # No AI Challenge! The Real Intelligence Contest!
 
 ##  ENTRY PERIOD
-The Contest begins on 1/7/25 and ends on 2/7/25. Entries submitted before or after the Entry Period will not be eligible.
+The Contest begins on 1/7/25 and ends on 2/10/25. Entries submitted before or after the Entry Period will not be eligible. Submit here: deepskydetail.challenges@gmail.com
 
 ## HOW TO ENTER
 To enter the Contest:
